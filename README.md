@@ -1,1 +1,1 @@
-# Practica2
+# Practica2 Zdravko Plamenov Nikolov
